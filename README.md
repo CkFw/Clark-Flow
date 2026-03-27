@@ -14,7 +14,7 @@
 
 ## 📫 Связаться со мной
 
-- **Email:** hikituy123@gmail.com  
+- **Gmail:** hikituy123@gmail.com  
 - **Telegram-канал:** [https://t.me/+07yt64kEYJthNWEy](https://t.me/+07yt64kEYJthNWEy)  
 - **GitHub:** [@CkFw](https://github.com/CkFw)
 
