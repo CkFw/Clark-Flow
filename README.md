@@ -14,8 +14,8 @@
 
 ## 📫 Связаться со мной
 
-- **Gmail:** hikituy123@gmail.com  
-- **Telegram-канал:** [https://t.me/+07yt64kEYJthNWEy](https://t.me/+07yt64kEYJthNWEy)  
+- **Gmail:** browserrise@gmail.com  
+- **Telegram-канал:** [https://t.me/+YjE_MFAD_io3NDli](https://t.me/+YjE_MFAD_io3NDli)  
 - **GitHub:** [@CkFw](https://github.com/CkFw)
 
 ---
